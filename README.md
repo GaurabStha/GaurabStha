@@ -5,7 +5,7 @@
 - 📫 How to reach me ...
 - Facebook:- https://www.facebook.com/profile.php?id=100007833769027
 - LinkedIn:- www.linkedin.com/in/gaurab-shrestha-aa532719b
-- Instagram:- stha.gaurab
+- Instagram:- @stha.gaurab
 - Email:- gaurabian111@gmail.com
 - Phone:- 9860311051
 
