@@ -6,7 +6,7 @@
 - Facebook:- https://www.facebook.com/profile.php?id=100007833769027
 - LinkedIn:- www.linkedin.com/in/gaurab-shrestha-aa532719b
 - Twitter:- https://twitter.com/GauriiStha
-- Wbbsite:- www.gaurabstha.com.np
+- Website:- www.gaurabstha.com.np
 - Instagram:- https://www.instagram.com/stha.gaurab/
 - Email:- gaurabian111@gmail.com
 - Phone:- 9860311051
