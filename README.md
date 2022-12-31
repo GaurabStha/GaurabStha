@@ -7,7 +7,7 @@
 - LinkedIn:- www.linkedin.com/in/gaurab-shrestha-aa532719b
 - Twitter:- https://twitter.com/GauriiStha
 - Website:- www.gaurabstha.com.np
-- Instagram:- https://www.instagram.com/stha.gaurab/
+- Instagram:- https://www.instagram.com/stha.gaurab_/
 - Email:- gaurabian111@gmail.com
 - Phone:- 9860311051
 
